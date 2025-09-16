@@ -1,1 +1,1 @@
-# Edi-esPaladim
+# Edições-Paladim
